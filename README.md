@@ -1,3 +1,3 @@
 # Chaos-Equations
 
-![](Animated GIF-source.gif)
+![](https://media.giphy.com/media/cSVA6tUOXOahl0uLlu/giphy.gif)
